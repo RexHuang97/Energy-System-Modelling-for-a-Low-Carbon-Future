@@ -1,1 +1,1 @@
-# Energu-System-Modelling-for-a-Low-Carbon-Future
+# Energy-System-Modelling-for-a-Low-Carbon-Future
